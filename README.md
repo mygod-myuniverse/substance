@@ -1,4 +1,6 @@
-<!-- gif and links i think -->
+### hi ponytown 
+
+<!--
 
 "hey there kitte-" "BARK" WTF
 
@@ -7,3 +9,4 @@
 pls sign rs
 
 [rentry](https://rentry.co/copqohbv) [old strawpage](https://l1teralegend.straw.page/)
+-->
