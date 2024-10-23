@@ -1,6 +1,4 @@
-### hi ponytown 
-
-<!--
+<!-- skibidi -->
 
 "hey there kitte-" "BARK" WTF
 
@@ -9,4 +7,5 @@
 pls sign rs
 
 [rentry](https://rentry.co/copqohbv) [old strawpage](https://l1teralegend.straw.page/)
--->
+
+<!-- end -->
