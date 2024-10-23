@@ -3,6 +3,6 @@ hi ponytown
 
 * “don’t cry anymore, since we’ll surely be able to meet again” -- lonely universe
 
-![orv-dokja](https://github.com/user-attachments/assets/d6aa4008-2121-4dc4-8404-11fae883d126)
+![oh my gyatt](https://64.media.tumblr.com/64773343ab35228f03dde1352077d819/90a5d36e0c2b671a-8d/s1280x1920/2b6d8b468b5ce017aa720b208b4c5f2cb9e5c86b.gifv)
 
 ![rentry](https://rentry.co/copqohbv)
